@@ -41,4 +41,4 @@ Music credit:
 ![Hard](https://i.imgur.com/5QKPMic.png?1)  ![Complete](https://i.imgur.com/MTwSIIM.png?2)
 
 
-View our end-of-week presentation here:
+View our end-of-week presentation here: http://slides.com/scrambledjpeggs/deck#/
